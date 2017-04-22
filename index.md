@@ -2,8 +2,7 @@
 
 Architecture Photography Film
 
-I carry from my mother's womb
-A fanatic heart
+I carry from my mother's womb, A fanatic heart
 
 ### Markdown
 
